@@ -1,1 +1,1 @@
-I’m BladeWolfK9000 currently learning python
+I’m currently learning python dont be too harh. (ￗ﹏ￗ )
